@@ -1,0 +1,6 @@
+- 👋 oii, eu sou a Luiza 
+- 👀 Aluna do primeiro ano do ensino medio
+- 🌱 Eu estou aprendendo sobre a linguagem da programaçao
+- 📫 Luiza__alfenas
+- 😄 Pronomes: ela/dela
+- ⚡ fatos sobre mim: tenho facilidade em programacao
